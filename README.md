@@ -3,7 +3,7 @@
 ## Who am I?
 🎓 My name is **Sean Schumacher**. I am an **electrical engineering student** @ **Drexel University** 🐉
 
-🛩 I am also a **CFII instructor** as **commercial pilot**. Aviation is a strong passion of mine!
+🛩 I am also a **CFII instructor** and **commercial multi engine pilot**. Aviation is a strong passion of mine!
 
 📚 Learning is my hobby and creating is my passion.
 
