@@ -1,7 +1,7 @@
 # hey
 
-i am an **electrical engineering student** @ **Drexel University** 
+i am an undergrad studying electrical engineering
 
-i am also a **CFII instructor** and **commercial multi engine pilot**. Aviation is a strong passion of mine
+i am also a CFII/MEI flight instructor continusouly pursuing a passion in aviation
 
-learning is my hobby and creating is my passion.
+learning is my hobby and creating is my passion
